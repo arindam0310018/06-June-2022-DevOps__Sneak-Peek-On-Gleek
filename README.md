@@ -1,4 +1,4 @@
-# SNEAK PEEK ON GLEEK IN DEVOPS.
+# SNEAK PEEK ON GLEEK IN DEVOPS
 
 Greetings my fellow Technology Advocates and Specialists.
 
